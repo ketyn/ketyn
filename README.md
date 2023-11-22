@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Ketynni Silva 😁
+## Ketynni Silva.
 
  <div>
    <a href="https://github.com/ketyn">
